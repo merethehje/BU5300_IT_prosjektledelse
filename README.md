@@ -12,4 +12,4 @@ Group submission (A)
 - Minor weakness: long/appendix-heavy; some commercial assumptions need validation
 
 Individual reflection
-Candidate "my number" (+1) strong and project-specific; feedback-based language/structure improvement
+Candidate 33 (+1) strong and project-specific; feedback-based language/structure improvement
